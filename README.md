@@ -1,1 +1,1 @@
-Little Free Pantry - Let build this thing!
+Little Free Pantry - Letsbuild this thing!
